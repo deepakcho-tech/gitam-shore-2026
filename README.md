@@ -1,0 +1,1 @@
+# gitam-shore-2026
